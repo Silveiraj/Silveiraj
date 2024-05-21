@@ -1,0 +1,2 @@
+- 👋 Oi, Sou @Silveiraj
+- 👀 Sou professor de Teccnologia e Robótica da Rede Estadual do Estado de São Paulo
